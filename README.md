@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Sonababu
+## 👋 Hi, I'm Subhajit Beshra
 
 🎓 Class 12 (PCMB) Student  
 💻 Aspiring Software & Android Developer  
